@@ -1,0 +1,1 @@
+# apptrends-for-mac.github.io
